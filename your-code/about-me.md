@@ -14,3 +14,4 @@
 * Which industry will you seek employment in? I'm mostly focused on the start-up environment.
 * What will your future role look like? Work in a company that has direct impact on customers lives.
 * What is your career goal? Learn from different industries and build my own company with the aim of having social impact.
+
